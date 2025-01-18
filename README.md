@@ -1,2 +1,2 @@
-# shrabantibrahma_mca_sec_A_50_2024
+# SHRABANTI_BRAHMA_MCA_2024_2026_45_UEMK
 IEM-MCA-1st Year
